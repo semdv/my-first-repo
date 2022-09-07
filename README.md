@@ -1,2 +1,2 @@
 # my-first-repo
-![sem de vries](https://images.ctfassets.net/h0r08og5wngf/2wTbtRVWZZUSYwY2naAKJP/f1238a666532c8b5023c462a07b2dd72/Jo.jpg?fit=thumb&w=1200&h=675&fm=jpgv)
+![sem de vries](https://video-images.vice.com/test-uploads/articles/5d790fba9a79ac000851c08a/social_lede/1585135996666-P1000731.jpeg?crop=0.5627931214174049xw:1xh;center,center)
